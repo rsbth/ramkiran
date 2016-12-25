@@ -1,2 +1,2 @@
 # ramkiran
-Resume for RamKiran , Designed by Santosh Bharadwaj Rangavajjula 
+Resume for RamKiran by Santosh Bharadwaj Rangavajjula 
